@@ -1,1 +1,1 @@
-Selamat datang kawan!
+Welcome to K' Universe!
